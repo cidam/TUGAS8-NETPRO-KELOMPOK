@@ -19,7 +19,10 @@
 
 [![Screen-Shot-2019-10-23-at-12-52-29.png](https://i.postimg.cc/sDVysF7z/Screen-Shot-2019-10-23-at-12-52-29.png)](https://postimg.cc/F1nwVBTC)
 
-[![Screen-Shot-2019-10-25-at-14-11-33.png](https://i.postimg.cc/6qpHbh2k/Screen-Shot-2019-10-25-at-14-11-33.png)](https://postimg.cc/cgPMrwch)
+[![Screen-Shot-2019-10-25-at-14-11-33.png](https://i.postimg.cc/6qpHbh2k/Screen-Shot-2019-10-25-at-14-11-33.png)]
+(https://postimg.cc/cgPMrwch)
+
+[![Screen-Shot-2019-10-25-at-14-53-17.png](https://i.postimg.cc/qM2MwXrb/Screen-Shot-2019-10-25-at-14-53-17.png)](https://postimg.cc/YhqHqFhY)
 
 [![Screen-Shot-2019-10-25-at-14-09-25.png](https://i.postimg.cc/wM1Xs4sj/Screen-Shot-2019-10-25-at-14-09-25.png)](https://postimg.cc/LgMYcTTc)
 
